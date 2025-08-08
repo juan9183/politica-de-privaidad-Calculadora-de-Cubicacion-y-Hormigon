@@ -33,6 +33,3 @@ Si tiene preguntas sobre esta política de privacidad, puede contactarnos a trav
 
 
 
-
-�� Recomendación:
-La política está muy bien redactada y cumple con los estándares legales actuales. Es transparente, clara y protege tanto al usuario como al desarrollador.
